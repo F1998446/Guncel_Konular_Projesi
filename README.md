@@ -1,1 +1,0 @@
-# Guncel_Konular_Projesi
